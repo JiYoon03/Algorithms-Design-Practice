@@ -1,0 +1,13 @@
+Chapter
+VI
+Death
+Of
+Severus
+Tyranny
+Of
+Caracalla
+Usurpation
+Of
+Macrinus
+Part
+IV

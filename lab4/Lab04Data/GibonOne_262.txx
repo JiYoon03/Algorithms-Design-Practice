@@ -1,0 +1,17 @@
+Chapter
+LXVI
+Union
+Of
+The
+Greek
+And
+Latin
+Churches
+Part
+I
+Part
+II
+Part
+III
+Part
+IV

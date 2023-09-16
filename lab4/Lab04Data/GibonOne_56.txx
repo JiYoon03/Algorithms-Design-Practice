@@ -1,0 +1,12 @@
+Chapter
+XVI
+Conduct
+Towards
+The
+Christians
+From
+Nero
+To
+Constantine
+Part
+IV
